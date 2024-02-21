@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MiaouUwu
+- 👀 I’m interested in eat ur feet
+- 🌱 I’m currently learning reverse engineering for beginners
+- 💞️ I’m looking to collaborate on animation projects
+- 📫 How to reach me : food
+- 😄 Pronouns: don't care
+- ⚡ Fun fact: 
